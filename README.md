@@ -21,7 +21,7 @@
 
 ### 链接  
 1.[点击这里我你可以直接打开我的qq]
-(tencent://message/?uin=394452216)<br /
+tencent://message/?uin=394452216
   
   
 ### 说明 
